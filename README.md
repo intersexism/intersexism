@@ -4,5 +4,5 @@
 
 ![](https://file.garden/ZRhkSjvANRar6iiQ/rentry%20co%20reform/divs/divs%20pink/qgto0m.gif)
 
-$\text{birdie　ask names}$
+$\text{birdie　/　ask names}$
 </p>
